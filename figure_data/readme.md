@@ -1,1 +1,1 @@
-Raw data relating to figures x-x
+Raw data relating to variants (Figures 4a-b and Figure 5a)
